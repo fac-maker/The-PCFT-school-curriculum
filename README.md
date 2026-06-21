@@ -1,2 +1,3 @@
 # The-PCFT-school-curriculum
-Hey everyone, this school curriculum is made by a child, so i asked my mom the permission to use her account to upload this amazing curriculum and she said yes!
+Hey everyone, this school curriculum is made by a child, so I asked my mom the permission to use her account to upload this amazing curriculum and she said yes! highlights include thought-based quizzes, video games, soft environment.
+Also known as The Philosophical Creative Freedom and Tech Curriculum [PCFT], we provide a goal to make the students learn the fun way! This is not an old-school curriculum...
